@@ -3,7 +3,7 @@ https://linktr.ee/weweonbase
 
 # WEWE Brand
 
-Find our brand kit under: https://drive.google.com/file/d/1KvxjkiapWlSCjpdDbHNMKNlMFPjCtcK9/view?usp=sharing
+Find our brand kit under: https://drive.google.com/drive/folders/1TaeFyopmx3HZlOa1a512YVVOfuCWkb2j?usp=sharing
 
 # Teams and Responsibilities 🏆
 
