@@ -2,7 +2,7 @@
 
 # wewe-brand
 
-find brand kit under: https://www.notion.so/WEWE-Brand-Kit-56ae9cc5bacc463ba3a06f5ac9bf9986
+Find our brand kit under: https://drive.google.com/file/d/1KvxjkiapWlSCjpdDbHNMKNlMFPjCtcK9/view?usp=sharing
 
 # Teams and Responsibilities 🏆
 
