@@ -1,6 +1,7 @@
+# WEWE Socials
+https://linktr.ee/weweonbase
 
-
-# wewe-brand
+# WEWE Brand
 
 Find our brand kit under: https://drive.google.com/file/d/1KvxjkiapWlSCjpdDbHNMKNlMFPjCtcK9/view?usp=sharing
 
