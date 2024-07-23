@@ -8,9 +8,11 @@ Lintree - https://linktr.ee/weweonbase
 
 Find our brand kits under:
 
-$WEWE Coin - https://drive.google.com/drive/folders/1Q2qURGKjFHS5k2_VNy9P4zLOCPAceqhD?usp=sharing
+WEWEBrand Guidelines - https://drive.google.com/drive/folders/1Um6tYM1HSF78XUE115eLriScwsMNOTxP?usp=sharing
 
-WEWEswap - https://drive.google.com/drive/folders/1_O8Sb6uPxdqFDb7m0DUKIFfgmoHHDqr4?usp=sharing
+$WEWE Coin - https://drive.google.com/drive/folders/1SsVhc-PgoCviD4rsZSgToLdfEzhqBpTE?usp=sharing
+
+WEWEswap - https://drive.google.com/drive/folders/11i0-SHo4DyKFr-r_OrKa7CUzg8HCPvaC?usp=sharing
 
 # Teams and Responsibilities 🏆
 
